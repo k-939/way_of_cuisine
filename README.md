@@ -1,1 +1,1 @@
-## The awy of cuisine
+## The way of cuisine
